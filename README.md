@@ -1,0 +1,1 @@
+# sartupThe real talent in all entrepreneurship—not only in tech startups—is finding the right problem, not building the right solution. In other words, it is vital to have the skills of Sherlock Holmes, not only those of Doc Brown. Discover our problem statement canvas for startups and innovation teams.
