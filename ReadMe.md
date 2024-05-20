@@ -1,9 +1,9 @@
 Startup Website 
 
-![Alt text](https://photos.google.com/photo/AF1QipNaruZDRc0MlY8UovV6X8lSwto-Atro3QSjss3Y)
+![startup1](https://github.com/vemula-chandi-priya/sartup/assets/113158270/af09acec-adc8-40d5-adab-c650a73c4684)
 
-![Alt text](https://photos.google.com/photo/AF1QipMipPnKzAyUkFVz3VSlOTs8_pRXU7QN6cZlFyxE)
+![startup2](https://github.com/vemula-chandi-priya/sartup/assets/113158270/f2738a98-9aa6-4242-9b9a-2f6e8ab3f43d)
 
-![Alt text](https://photos.google.com/photo/AF1QipNFGYSb0xQ5OqpJmf7hyRnBsZmSZY0tMoSaLinv)
+![startup3](https://github.com/vemula-chandi-priya/sartup/assets/113158270/f63720c7-2cd1-420b-9339-f02a718dccf6)
 
-![Alt text](https://photos.google.com/photo/AF1QipNjVkKup26ugUDFSt3fr1LaylJM9Tr6bpUASLro)
+![startup4](https://github.com/vemula-chandi-priya/sartup/assets/113158270/1f27cb83-a873-4aa3-bc27-b38865ba338f)
